@@ -1,16 +1,16 @@
-### Hi there 👋
+### Boas vindas ao meu perfil✨
 
-<!--
-**Aleh098/Aleh098** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é **Aleh Salvatore**💤
 
-Here are some ideas to get you started:
+- Tenho 16 aninhos
+- Minha mãe é descendente de Russo e meu pai, descendente de Alemão, e o meu irmão eu n sei
+- Nasci no Estados Unidos mas me mudei para o Brasil :^
+- Tenho um gato chamado Garfield, um cachorro, o Mike e um hamster chamado Théodor, mas eu o chamo de Théo
+- Amo vôlei🏐 à tarde eu costumo sair com meus amigos para jogar, gosto de jogos casuais e até gosto de desenhar🎨
+- amo ouvir músicas, de vários tipos, rock, gospel, internacionais e por aí vai💭🎶
+- amo séries, minha série preferida é **Supernatural** ✡️🖤
+- Amo ficar em casa💤
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Venha entrar em contato comigo pelo meu Instagram: @jerusa.mikaelson009
+ 
+![](https://tenor.com/bqaqu.gif) 
